@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil GAbriela Gorks Custodio 😁
+## Bem-vindo(a) ao perfil Gabriela Gorks Custodio 😁
 
  
  <div>
